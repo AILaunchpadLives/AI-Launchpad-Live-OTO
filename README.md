@@ -1,4 +1,4 @@
-# AI Launchpad Live OTO All Bundle & Review +Demo
+# AI Launchpad Live OTO All Bundle & Review +Demo 2025
 
 **AI Launchpad Live** is an **immersive 3-day virtual event** designed to take you from **zero experience** to launching your own **AI-powered product, sales funnel, and automated business**—all with the help of cutting-edge AI tools.
 
